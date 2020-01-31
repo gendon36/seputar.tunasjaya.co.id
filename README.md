@@ -1,1 +1,0 @@
-# seputar.tunasjaya.co.id
